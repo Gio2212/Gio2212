@@ -6,5 +6,4 @@
 
 
 
-
-![](https://tenor.com/pt-BR/view/hell-nah-gif-2210754032934244692)
+![](https://media.tenor.com/dd3lYMxFFRgAAAAi/new-post.gif)
